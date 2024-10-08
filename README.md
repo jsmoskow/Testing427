@@ -1,3 +1,3 @@
-# Hi my name is Jared
-# I want a conflict please
+# Hi my name is Ben
+# I want ray to lead a democracy
 
