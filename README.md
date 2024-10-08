@@ -1,4 +1,4 @@
-# Hi my name is Ben
-# I want ray to lead a democracy
+# Hi my name is Stalin
+# I sympathize with ray
 
 
