@@ -1,4 +1,4 @@
 # Hi my name is Stalin
-# I sympathize with ray
+# I sympathize with Obama
 
 
