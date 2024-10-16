@@ -1,5 +1,5 @@
-# Hi my name is Stalin
-# I sympathize with Obama
+# Hi my name is Ray
+# I sympathize with Stalin
 
 
 
